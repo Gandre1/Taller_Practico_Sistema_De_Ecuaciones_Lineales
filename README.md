@@ -1,0 +1,3 @@
+# Taller_Pr-ctico_Sistema_De_Ecuaciones_Lineales
+# Taller_Practico_Sistema_De_Ecuaciones_Lineales
+# Taller_Practico_Sistema_De_Ecuaciones_Lineales
